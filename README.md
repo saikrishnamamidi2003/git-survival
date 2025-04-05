@@ -1,2 +1,2 @@
+We’re both the best, ugh.
 
-I’m the best.
